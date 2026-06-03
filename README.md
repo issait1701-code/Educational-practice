@@ -1,3 +1,3 @@
 # Educational-practice
 gayliyar
-akylgay
+akylgay gay
