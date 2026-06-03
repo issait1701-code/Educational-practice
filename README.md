@@ -1,2 +1,3 @@
 # Educational-practice
-aliyar loh
+gayliyar
+akylgay
